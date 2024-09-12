@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Chiefnenry
+- 👋 Hi, I’m Charles Omosegbon (devWizard
 - # 💫About Me :
 ## About Me
 
