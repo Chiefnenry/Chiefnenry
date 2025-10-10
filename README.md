@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nafiu Aminu (devWizard
+- 👋 Hi, I’m Charles Omosegbon (devWizard
 - # 💫About Me :
 ## About Me
 
